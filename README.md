@@ -1,1 +1,2 @@
 # Fashion
+Fashion is a popular style or trend of something, especially clothing. Fashion is also the general conventions of politeness that society conforms to or an attitude or manner. Fashion can also mean to create something. Fashion has several other senses as a noun and a verb. The following are the five different types of fashion design: Fashion categories include: Haute Couture Fashion Luxury Fashion Ready-To-Wear Fashion Economy Fashion and Fast Fashion. And there are also different brand like [deglans.com](https://deglans.com/) to serve to best.
